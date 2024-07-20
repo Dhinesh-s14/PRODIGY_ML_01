@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Dhinesh Kumar S 
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning AI&DS
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on MNC's
 - 📫 How to reach me 7904384854
 - 😄 Pronouns: Dhinesh Kumar S 
 - ⚡ Fun fact: ...
